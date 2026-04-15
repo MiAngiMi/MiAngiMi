@@ -4,8 +4,7 @@
 ###### <div align="center"> ![image](https://github.com/aevsria/gift-for-angi/blob/cf6ae1d94fb00f52a52694bd313acf50f6ed926f/IMG_1880.gif) [𝘢tabook](https://miangimi.atabook.org)[𝘴trawpage](https://angelx3.straw.page)[𝘱rns.𝘱age](https://en.pronouns.page/@Angel-Ika) ![image](https://github.com/aevsria/gift-for-angi/blob/cf6ae1d94fb00f52a52694bd313acf50f6
 <p align="center">
   <img src="https://github.com/aevsria/gift-for-angi/blob/4079f35c5a93d8955b31906d627d3b9239c2c811/Untitled72_20260413190850-removebg-preview.png" alt="Description">
-</p>
-<p align="center">
+</p><p align="center">
   <img src="https://img.shields.io/badge/✧lordoyster-whitepearl♡-dab2b7" alt="Description">
 </p>
 ###### <div align="center"> $${\color{#d19d9f}꒰ঌ \space angelika \space , \space angi \space , \space any \space nicknames\space⊰⊱\spaceshe \space / \space her \spaceও⁺}$$
