@@ -14,9 +14,9 @@
   <img src="https://img.shields.io/badge/✧lordoyster-whitepearl♡-dab2b7" alt="Description">
 </p>
 
-###### <div align="center"> $${\color{#d19d9f}꒰ঌ \space angelika \space , \space angi \space , \space any \space nicknames\space⊰⊱\spaceshe \space / \space her \spaceও⁺}$$
+###### <div align="center"> $${\color{#d19d9f}꒰ঌ \space angelika \space , \space angi \space , \space any \space nicknames\space⊰⊱\space she \space / \space her \spaceও⁺}$$
 
-###### <div align="center"> $${\color{#d3adb1}⋆.ೃ࿔*･ \space interact \space freely \space , \space id \space love \space to \space make\space new \spacefriends! \space ৎ ݁˖ . ݁}$$
+###### <div align="center"> $${\color{#d3adb1}⋆.ೃ࿔*･ \space interact \space freely \space , \space id \space love \space to \space make\space new \space friends! \space ৎ ݁˖ . ݁}$$
 
 ###### <div align="center"> $${\color{#d3aaaf}ྀི︶˚̣̣̣ ྀི◟ ͜ ◞˚̣̣̣ ྀི︶𓏴︶˚̣̣̣ ྀི◟ ͜ ◞˚̣̣̣ ྀི︶}$$
 
